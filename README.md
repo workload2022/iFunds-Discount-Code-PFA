@@ -1,4 +1,3 @@
-```md
 # iFunds Discount Code (2026 – Verified & Updated)
 
 Welcome to **ifundscoupon.com**, the trusted destination for finding the **latest iFunds discount code**.  
@@ -89,4 +88,3 @@ We focus on accuracy, freshness, and trader value.
 
 © 2026 ifundscoupon.com  
 **Your Trusted Source for iFunds Discount Code**
-```
