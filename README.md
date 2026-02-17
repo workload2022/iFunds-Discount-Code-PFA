@@ -4,6 +4,7 @@ Welcome to **ifundscoupon.com**, the trusted destination for finding the **lates
 This page is 100% focused on one keyword only: **iFunds discount code** — helping traders save money on every iFunds account purchase.
 
 All discount codes listed here are tested, verified, and regularly updated.
+https://ifundscoupon.com
 
 ---
 
